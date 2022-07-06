@@ -1,0 +1,6 @@
+- Hi, I’m Kshetrimayum Simanta Singh
+- I did BTech from North Eastern Regional Institute Of Science And Technology.I am currently persuing my Mtech Degree from Nit Durgapur.
+- I’m interested in learning new things.
+- I’m currently learning python.
+- I’m looking to collaborate on beginners python project
+- You can reach me in the mail that I mention in my profile.
